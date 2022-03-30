@@ -1,4 +1,3 @@
-Game Developer
 
 📚 https://uzayadiguzel.github.io/
 
